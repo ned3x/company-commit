@@ -10,3 +10,4 @@ the greatest truth in life are usually the most unpleasant to hear
 emotions are overrated
 we suffer for the simple reason that suffering is bio-logically useful....
 physical pain is the product of our nervous system
+pain is what teaches us what to pay attention to when we're young or careless
