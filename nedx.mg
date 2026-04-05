@@ -7,3 +7,4 @@ man... i just wanna make it out
 don't joke around!!!
 happiness is algorithmic
 the greatest truth in life are usually the most unpleasant to hear
+emotions are overrated
