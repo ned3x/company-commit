@@ -5,3 +5,4 @@ don't be a dictator
 pain is inevitable
 man... i just wanna make it out
 don't joke around!!!
+happiness is algorithmic
