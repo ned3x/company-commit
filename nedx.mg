@@ -8,3 +8,4 @@ don't joke around!!!
 happiness is algorithmic
 the greatest truth in life are usually the most unpleasant to hear
 emotions are overrated
+we suffer for the simple reason that suffering is bio-logically useful....
