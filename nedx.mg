@@ -16,3 +16,4 @@ work and pray, that's the code....
 i can't sleep... i dey find money!!!
 don't be a dead-beat!!!
 our struggle determines our success
+just want her to accept me as i'm.... no one is perfect!!!
