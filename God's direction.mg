@@ -9,3 +9,4 @@ nigga stop calling my phone go pop some sh!t
 "happiness requires struggle"
 "we're not exceptional"
 God when??......
+there is still hope broski!!!!
