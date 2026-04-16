@@ -19,3 +19,4 @@ our struggle determines our success
 just want her to accept me as i'm.... no one is perfect!!!
 am i a bad person???
 been stingy is a big sin
+keep showing up for your brother!!!
