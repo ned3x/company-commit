@@ -4,3 +4,4 @@ baba... take this pain away
 "who you are is defined by what you are willling to struggle for"
 struggling in the bricks, just to make $$$$$
 nigga stop calling my phone go pop some sh!t
+"the path to happiness is a path filled with shit heaps and shame"
