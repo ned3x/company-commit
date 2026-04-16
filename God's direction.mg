@@ -13,3 +13,4 @@ there is still hope broski!!!!
 faith is evidence of things hoped for.......
 when we gonna see this racks$$$$
 father lord prepare this table for me financially
+all man fighting their different demons 
