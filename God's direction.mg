@@ -5,3 +5,4 @@ baba... take this pain away
 struggling in the bricks, just to make $$$$$
 nigga stop calling my phone go pop some sh!t
 "the path to happiness is a path filled with shit heaps and shame"
+"you can't win if you don't play", that's the game of love.....
